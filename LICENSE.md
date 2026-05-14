@@ -1,4 +1,4 @@
-#  
+#  advanced Script for break a brainrot egg is the best break a brainrot egg Script, featuring fly and private server access. Safe and powerful for all
 
 
 
